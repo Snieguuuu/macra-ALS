@@ -1,0 +1,1 @@
+pliki po prawej zjeby
